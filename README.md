@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @AugustoMorais30
+- 👋 Hi, I’m Augusto Morais
 - CE | 2005
